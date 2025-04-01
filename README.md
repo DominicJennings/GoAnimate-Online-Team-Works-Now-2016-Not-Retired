@@ -1,2 +1,2 @@
-# GoAnimate-Online-Team-Works-Now-2016-Not-Retired
+# GoAnimate-Online-Team-Works-Now-Not-Retired
 On Dominic Jennings
